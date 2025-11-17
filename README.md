@@ -1,1 +1,1 @@
-# Meta-Hacker-Cup-2025
+# Meta Hacker Cup 2025
